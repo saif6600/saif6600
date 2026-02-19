@@ -86,7 +86,7 @@ Chhatrapati Shahu Institute of Business Education and Research, Kolhapur
 
 📧 Email: bakkarsaifali@gmail.com  
 🔗 LinkedIn: https://linkedin.com/in/saif-ali6600  
-💻 GitHub: https://github.com/saif-ali6600  
+💻 GitHub: https://github.com/saif6600  
 
 ---
 
